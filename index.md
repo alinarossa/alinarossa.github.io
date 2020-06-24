@@ -9,4 +9,6 @@ Miller is funny. Miller is weird.
 * Miller wears a hat
 
 > You wen't into a room too fast kid !
-> Miller Season 1
+Miller Season 1
+
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcQzGMmk7K39IjmCn2GD-RXLfTdjK8gV48VnqA&usqp=CAU"/>
