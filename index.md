@@ -1,1 +1,2 @@
-A website for my favourite character is currently being built here!
+# Welcome to Miller's site!!!
+## On here we will collect all there is to know about MILLER
