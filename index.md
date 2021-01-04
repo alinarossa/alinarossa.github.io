@@ -7,6 +7,7 @@ Miller is funny. Miller is weird.
 * Miller is brave
 * Miller would love to feel the rain
 * Miller wears a hat
+* Miller will  be the protomolecule
 
 > You wen't into a room too fast kid !
 Miller Season 1
